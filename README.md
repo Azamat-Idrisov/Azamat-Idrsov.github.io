@@ -1,1 +1,1 @@
-# Azamat-Idrsov.github.io
+# Azamat-Idrisov.github.io
